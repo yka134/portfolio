@@ -1,1 +1,1 @@
-Welcome to me portfolio! Here are a few of my projects.
+Welcome to my portfolio! Here are a few of my projects.
